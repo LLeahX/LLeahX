@@ -6,4 +6,6 @@
 
 <p align="center"> bloodhounds (kdrama) , My Name (kdrama) , Whc , Minecraft , Music , history , Dead Rising , Mortal Kombat , The Outsiders </p>
 
+[kins + basic favs](https://p0orple.straw.page)
+
 <img width="2048" height="2048" alt="1000003113" src="https://github.com/user-attachments/assets/c5b7c42a-0ba4-409d-8b4b-4d3dc6ad4dd2" />
