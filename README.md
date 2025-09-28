@@ -9,3 +9,4 @@
 [kins + basic favs](https://p0orple.straw.page)
 
 <img width="2048" height="2048" alt="1000003113" src="https://github.com/user-attachments/assets/c5b7c42a-0ba4-409d-8b4b-4d3dc6ad4dd2" />
+<img width="2048" height="2048" alt="1000003147" src="https://github.com/user-attachments/assets/4f557203-87e5-4e54-a2e9-6ca4c075e29a" />
