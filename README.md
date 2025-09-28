@@ -1,12 +1,9 @@
-###     <p align="center">Music</p>
+<p align="center">${\textsf{\color{purple}1DERZ follow me b4 1OR8 gets overrated ! /j }}$</p>
 
-<p align="center"> ONE OR EIGHT , Kendrick Lamar , Lil Wayne , Stray Kids , ZE:A , Jackson Wang , ATEEZ , king von , Future , Pop smoke , GOT7</p>
+<img width="2048" height="2048" alt="1000003113" src="https://github.com/user-attachments/assets/df72356f-8c5b-44ec-abd6-94e80d4f00a3" />
 
-###     <p align="center"> interests </p>
 
-<p align="center"> bloodhounds (kdrama) , My Name (kdrama) , Whc , Minecraft , Music , history , Dead Rising , Mortal Kombat , The Outsiders </p>
 
-[kins + basic favs](https://p0orple.straw.page)
+<p align="center">${\textsf{\color{purple}Why tf is Takeru's smile so damn cute sobss }}$</p>
 
-<img width="2048" height="2048" alt="1000003113" src="https://github.com/user-attachments/assets/c5b7c42a-0ba4-409d-8b4b-4d3dc6ad4dd2" />
-<img width="2048" height="2048" alt="1000003147" src="https://github.com/user-attachments/assets/4f557203-87e5-4e54-a2e9-6ca4c075e29a" />
+![1000002961](https://github.com/user-attachments/assets/9d121a89-5ddb-484a-8a3f-8fb6e9aef3ee)
