@@ -6,5 +6,9 @@
 
 <p align="center">${\textsf{\color{purple}Why tf is Takeru's smile so damn cute sobss }}$</p>
 
+
+![1000002961](https://github.com/user-attachments/assets/74a55df1-266d-4956-9420-8111e256e656)
+
+
 <img width="2048" height="2048" alt="1000003187" src="https://github.com/user-attachments/assets/ac2299f7-e1c7-4050-9799-4d4d1214cf12" />
 
