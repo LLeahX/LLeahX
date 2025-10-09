@@ -1,6 +1,1 @@
-<p align="center">${\textsf{\color{#5F776E} 14  。  straight  。 she/her  。 Eng + 中國 + 한국어}}$</p>
-
-
-<img width="3500" height="2048" alt="1000003421" src="https://github.com/user-attachments/assets/3ac934e3-fbe4-4b8d-93e4-9e81d8417391" />
-
-[Carrd](https://oneoreight.carrd.co)       。、[Atabook](https://chr1stmas3ve1.atabook.org)
+🍀I started writing music 4 years ago. I am great at freestyling, but I still can't just sit down and think thoroughly into lyrics to create. I have created my own music on [FL studio](https://www.image-line.com/fl-studio-download), but none are publicly produced (I'm only 14)
