@@ -1,13 +1,9 @@
-<img width="310" height="340" alt="1000003589" src="https://github.com/user-attachments/assets/84d38f6f-3274-40e4-a01b-2836b67de8f3" />
-    <p align="center">Cờ đỏ sao vàng</p>
-    
-<img width="310" height="340" alt="1000003587" src="https://github.com/user-attachments/assets/bbe5c59b-28fd-4fce-b0a8-52bdfd8059d7" />
+#     <p align="center">Leah</p>
 
-<p align="center">남쪽 한국</p>
+### 14 (June 10th) /-/ Taken (oct 17th <3) /-/ Straight /-/ English + 한국어 + 中國人 + Tiếng Việt.
 
-<img width="310" height="340" alt="1000003588" src="https://github.com/user-attachments/assets/e82a07be-311c-46bd-b604-e0527aed0bd0" />
+🌏Places: Da Nang City Vietnam, Hong Kong China, Busan South Korea, Tokyo Japan
 
-<p align="center">中國</p>
+❌: Loud noises, Violence, Dark romance, Gore
 
-
-
+❤️: My friends and my bf, cats, dogs, turtles, pigs, Cattles, Pirates, Minecraft, art.
