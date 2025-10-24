@@ -1,3 +1,4 @@
-![1000003630](https://github.com/user-attachments/assets/50b47808-fe68-4a8c-a3dc-9abcbefb5486)
-    
-<p align="center">She / her  .  Straight.   .   Taken</p>
+![](https://komarev.com/ghpvc/?username=LLeahX&color=red)← All on my page sucking dih
+![1000003641](https://github.com/user-attachments/assets/f5ff8bab-bc2a-440a-897a-954f06485cb2)
+
+[Strawww](https://250onmywrist.straw.page)
