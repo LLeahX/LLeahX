@@ -1,4 +1,16 @@
-![](https://komarev.com/ghpvc/?username=LLeahX&color=red)← All on my page sucking dih
-![1000003641](https://github.com/user-attachments/assets/f5ff8bab-bc2a-440a-897a-954f06485cb2)
+中國人 + English + Tiếng Việt + 한국어. im not fluent in any except english :) Korean is my 2nd most spoken language.
 
-[Strawww](https://250onmywrist.straw.page)
+<p align="center">she / her - Straight - taken :3</p>
+
+_______
+
+
+ <p align="center">DO NOT INTERACT</p>
+
+- ❌ problematic people 
+- ❌ Skin copiers
+- ❌ Trolls
+- ❌ Country human ships
+- ❌ H1t1er skins 
+
+ 
