@@ -1,18 +1,12 @@
-# <p align="center">Leah !</p>
+<img width="1200" height="800" alt="1000003690" src="https://github.com/user-attachments/assets/8fde3938-8499-45ab-801b-634dccc647bd" />
 
-  <p align="center">Straight - She/her - taken - 中國人 , Tiếng Việt , 한국어 !</p>
-_______
+<p align="center">Straight | ${\textsf{\color{#a9957b}She/her}}$ | 14 ${\textsf{\color{#a9957b}(6/10)}}$</p>
 
- <p align="center">${\textsf{\color{#AF0000}DNI}}$</p>
+<img width="510" height="340" alt="1000003587" src="https://github.com/user-attachments/assets/c839725a-da92-49c5-a8c2-3311711c34df" />
 
-- ❌ Country shippers (like why?-)
+ <p align="center">languages: 한국어 , English , 中國 ，người Việt and a little bit of Italian</p>
 
-- ❌ Racism + Sexist + Homophobics + Transphobics
+<p align="center">Fav colors: Beige, white, blue, purple</p>
 
-- ❌ H!tl3r skins
-
-
-
-
-
+<p align="center">taken 💕</p>
 
