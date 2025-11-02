@@ -1,12 +1,7 @@
-<img width="1200" height="800" alt="1000003690" src="https://github.com/user-attachments/assets/8fde3938-8499-45ab-801b-634dccc647bd" />
+ ${\textsf{\color{#532A25} ⌗ 𝚂𝚝𝚛𝚊𝚒𝚐𝚑𝚝 + 𝚃𝚊𝚔𝚎𝚗 + 𝚂𝚑𝚎 𐔌 𝚑𝚎𝚛 }}$
 
-<p align="center">Straight | ${\textsf{\color{#a9957b}She/her}}$ | 14 ${\textsf{\color{#a9957b}(6/10)}}$</p>
+  <p align="center">${\textsf{\color{#82775B}𝙴𝚗𝚐𝚕𝚒𝚜𝚑 + 中國人 + 한국어 ★ }}$</p> 
 
-<img width="510" height="340" alt="1000003587" src="https://github.com/user-attachments/assets/c839725a-da92-49c5-a8c2-3311711c34df" />
+  <p align="right">${\textsf{\color{#485261}𝚆𝚛𝚒𝚝𝚎𝚛, 𝙻𝚢𝚛𝚒𝚌𝚒𝚜𝚝, 𝚊𝚛𝚝𝚒𝚜𝚝  𐔌 }}$</p>
 
- <p align="center">languages: 한국어 , English , 中國 ，người Việt and a little bit of Italian</p>
-
-<p align="center">Fav colors: Beige, white, blue, purple</p>
-
-<p align="center">taken 💕</p>
-
+  ![1000003697](https://github.com/user-attachments/assets/8cf290c8-0de3-4705-ba68-3be7b47288ba)
