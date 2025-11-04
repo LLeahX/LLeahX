@@ -1,7 +1,1 @@
- ${\textsf{\color{#532A25} ⌗ 𝚂𝚝𝚛𝚊𝚒𝚐𝚑𝚝 + 𝚃𝚊𝚔𝚎𝚗 + 𝚂𝚑𝚎 𐔌 𝚑𝚎𝚛 }}$
-
-  <p align="center">${\textsf{\color{#82775B}𝙴𝚗𝚐𝚕𝚒𝚜𝚑 + 中國人 + 한국어 ★ }}$</p> 
-
-  <p align="right">${\textsf{\color{#485261}𝚆𝚛𝚒𝚝𝚎𝚛, 𝙻𝚢𝚛𝚒𝚌𝚒𝚜𝚝, 𝚊𝚛𝚝𝚒𝚜𝚝  𐔌 }}$</p>
-
-  ![1000003697](https://github.com/user-attachments/assets/8cf290c8-0de3-4705-ba68-3be7b47288ba)
+  ![1000003718](https://github.com/user-attachments/assets/45bd544d-2317-404f-9dfc-c6a24960c165)
